@@ -1,1 +1,1 @@
-https://66c652df466d4785721e3471--voluble-pony-e8b24e.netlify.app/
+https://66c657aa80b62182c6afe96b--serene-lokum-d0de65.netlify.app/
